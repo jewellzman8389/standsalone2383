@@ -1,0 +1,8 @@
+# standsalone2383
+dROid  
+orick021911@outlook.com
+Dick
+Exploring dev_everything
+wanting info_4_halo_droid
+very intrigued&passionate4halo
+atm trying2makeuseofolddevicesthatareinverygoodconditionjustveryoutofdate
